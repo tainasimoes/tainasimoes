@@ -1,10 +1,10 @@
 ### Olá 👋🏾
 
-Sou Sócia da [@grama.cc](https://www.instagram.com/grama.cc/), estúdio focado em desenvolvimento criativo. Designer pela Escola de Belas Artes da UFRJ, trabalha com mídias digitais desde 2012.
+Sou Sócia da [@grama.cc](https://www.instagram.com/grama.cc/), estúdio focado em desenvolvimento criativo. Designer pela Escola de Belas Artes da UFRJ, trabalho com mídias digitais desde 2012.
 
-Foi professora no projeto Escola HTML na Mineira, Rio de Janeiro, onde aprendeu e ensinou sobre programação, arte e a cultura da gambiarra.
+Fui professora no projeto Escola HTML na Mineira, Rio de Janeiro, onde aprendi e ensinei sobre programação, arte e a cultura da gambiarra.
 
-Tem um interesse no uso de novas mídias e tecnologias para o desenvolvimento urbano e comunitário. **Viva a força da mulher preta =]**
+Tenho interesse no uso de novas mídias e tecnologias para o desenvolvimento urbano e comunitário. **Viva a força da mulher preta =]**
 
 **Experimentos:**  [https://tainasimoes.com.br/generative-art/](https://tainasimoes.com.br/generative-art/)
 
