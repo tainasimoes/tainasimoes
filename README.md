@@ -1,4 +1,4 @@
-### Hi there 👋🏾
+### Olá 👋🏾
 
 Sou Sócia da [@grama.cc](https://www.instagram.com/grama.cc/), estúdio focado em desenvolvimento criativo. Designer pela Escola de Belas Artes da UFRJ, trabalha com mídias digitais desde 2012.
 
