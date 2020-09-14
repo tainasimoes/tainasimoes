@@ -4,7 +4,9 @@ Sou Sócia da [@grama.cc](https://www.instagram.com/grama.cc/), estúdio focado 
 
 Fui professora no projeto Escola HTML na Mineira, Rio de Janeiro, onde aprendi e ensinei sobre programação, arte e a cultura da gambiarra.
 
-Tenho interesse no uso de novas mídias e tecnologias para o desenvolvimento urbano e comunitário. **Viva a força da mulher preta =]**
+Tenho interesse no uso de novas mídias e tecnologias para o desenvolvimento urbano e comunitário. 
+
+**Viva a força da mulher preta =]**
 
 **Experimentos:**  [https://tainasimoes.com.br/generative-art/](https://tainasimoes.com.br/generative-art/)
 
