@@ -6,13 +6,12 @@ Foi professora no projeto Escola HTML na Mineira, Rio de Janeiro, onde aprendeu 
 
 Tem um interesse no uso de novas mídias e tecnologias para o desenvolvimento urbano e comunitário. **Viva a força da mulher preta =]**
 
-**instagram:** [@tainasim](https://www.instagram.com/tainasim/)
+**Experimentos:**  [https://tainasimoes.com.br/generative-art/](https://tainasimoes.com.br/generative-art/)
 
-**site:** [experimentos](https://tainasimoes.com.br/generative-art/)
+### Bora conversar? ☕️
 
-**linkedin:** [curriculo](https://www.linkedin.com/in/taina-simoes/)
-
-
+- **instagram:**  [@tainasim](https://www.instagram.com/tainasim/)
+- **linkedin:**  [curriculo](https://www.linkedin.com/in/taina-simoes/)
 
 
 <!--
